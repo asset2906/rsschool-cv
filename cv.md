@@ -7,6 +7,6 @@
 **Education:** 2008-2012 Almaty University of Power Engineering and Telecommunication/ Bachelor Degree for Mobile radio and television/Radio Engineering Electronics and Telecommunications  
 **Language:** English level - B1/IELTS 5.0  
 **Personality:** Purposeful, answerable, communicative, punctual, accurate, learns quickly, attentive, disciplined, conscientious, organized  
-  
+**Hobbies:** Theatre, music, tourism, play the dombra, play the guitar, chess  
 
 
